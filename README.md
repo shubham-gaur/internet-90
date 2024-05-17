@@ -10,7 +10,7 @@ The interconnected network known as the Internet, gave a power of awareness arou
 
 It was a freedom of Expression and sadly It was!
 
-Downhill for Internet might be too much of a stretch; but for the people who has grown in the era of foundation of Internet, already see it dying. Free speech has already been controlled and the fact is internet had been developed to overcome the limitations of offline free speech. Every text and document has been ranked on the engagement. Is it appropriate to rank content solely based on popularity? Offline surveys, reports, and studies formed the backbone of the Internet. This digital world has to be the replica of better offline world.  But this concept has been totally manipulated.
+Downhill for Internet might be too much of a stretch; but for the people who has grown in the era of foundation of Internet, already see it dying. Free speech has already been controlled and the fact is, internet had been developed to overcome the limitations of offline free speech. Every text and document has been ranked on the engagement. Is it appropriate to rank content solely based on popularity? Offline surveys, reports, and studies formed the backbone of the Internet. This digital world has to be the replica of better offline world.  But this concept has been totally manipulated.
 
 Free knowledge! This is the area where the most attention has been paid in the last decade.  Providing knowledge and Monetising knowledge are two completely different things. There are many major platforms those provide tonnes of videos; but the fun fact is, if the knowledge that has single source of truth than it transforms to intelligence otherwise to a confusion. People are just confused at the end of the day.
 
