@@ -6,7 +6,7 @@ The Internet Is Dying
 
 The Internet has come a long way. Since evolving from 1990s and foundation led by ARPANET; The Internet has largely progressed. Most of the internet made up today is based on WWW, SFTP and SMTP. It’s common to associate the Internet with these terms since this is true for 99% (_exaggerated fact that is made up!_) of people. Also, I would like to revolve around these points since these protocols were the base of ideology of the Internet.
 
-The interconnected network known as the Internet, gave a power of awareness around the work. It has given a lot in terms of free speech, free knowledge and mainly free thoughts. It allowed us not to be bound by any circumstance and remove barriers in our communication.
+The interconnected network known as the Internet, gave a power of awareness around the world. It has given a lot in terms of free speech, free knowledge and mainly free thoughts. It allowed us not to be bound by any circumstance and remove barriers in our communication.
 
 It was a freedom of Expression and sadly It was!
 
